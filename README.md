@@ -8,7 +8,7 @@ join Blog: https://boosty.to/snarky_security
 
 ## Digest list:
 - [2024 April](2024-05-02/Snarky%20Security.%20Digest.%202024-04.pdf)
-- [2024 May](2024-05-31/Snarky%20Security.%20Digest.%202024-05%23Pro.pdf)
+- [2024 May](2024-05-31/Snarky%20Security.%20Digest.%202024-05.%20Level%23Pro.pdf)
 
 
 
