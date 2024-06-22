@@ -1,0 +1,9 @@
+# 2024-06-18: Cybersecurity & Antartica 
+
+Unpacking in more detail: see pdf
+
+In a stunning display of indifference that barely registered a blip on the global radar, the US decided to hit the pause button on its scientific endeavors in the frosty expanse of Antarctica. Yes, in a move that screams "we're broke," both the vast, mysterious continent and its surrounding icy waters have been left to fend for themselves. 
+
+In a revelation that shocked precisely zero people, the U.S. National Science Foundation (NSF) declared in April that it was too cash-strapped to bother with new field research this season. Why? Because upgrading the McMurdo Station is apparently as complex as rocket science. The NSF, along with the U.S. Coast Guard, also took this opportunity to announce cuts that essentially put America's scientific street cred on thin ice for the foreseeable future. Specifically, the NSF decided that Laurence M. Gould was no longer worth the lease, and why stop there? They figured operating just one research vessel for the next few decades sounded like a solid plan. Not to be outdone, the U.S. Coast Guard admitted in March that it needed to "reassess baseline metrics" for its Polar Security Cutter program, which is just a fancy way of saying they're nowhere close to figuring it out. These decisions are set to haunt U.S. operations in Antarctica way past 2050, ensuring a legacy of strategic blunders.
+
+The result of these independent yet equally baffling decisions is a significant reduction in the U.S. physical presence in Antarctica. This not only spells trouble for American scientists but also signals a retreat in U.S. geopolitical influence in the region. With Russia flexing its icebreaker superiority and China rapidly catching up, the U.S. seems to have forgotten the basics: regular funding for Antarctic research, a strategy that doesn't belong in a museum labeled "A Masterclass in Budgetary Woes and Strategic Apathy"
