@@ -1,4 +1,4 @@
-# 2024-06-04: Marine Security. Part I
+# 2024-06-04: MQ Market Insights. Simple Solutions Are Just Too Cheap, Spending More is Always Better
 
 Unpacking in more detail: see pdf
 
